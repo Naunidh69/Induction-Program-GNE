@@ -10,8 +10,14 @@ Naunidh Singh Grover ECE
 
 ### This is the day I would never ever forget in my life.
 
-##Day2 -6
-###I explored the campus further with my friends. The areas that I liked the most were the sports complex and the swimming pool, as I play many sports and want to explore swimming during my college time. From day 2 to day 6 of the Induction Program, many guests gave lectures to prepare for the new phase of our lives. One guest lecturer who touched my heart was Mr Manpreet Singh (A fitness coach) to never touch drugs, as this is the most volatile stage of our lives. This is the line I am gonna remember for my life. The Teacher and seniors of the college are guiding me  
+##Day2 - 6
+### During my time at college so far, I had the chance to explore the campus further with my friends. The areas I liked the most were the sports complex and the swimming pool, as I enjoy playing various sports and would love to take up swimming during my college years.
+
+### From Day 2 to Day 6 of the Induction Program, several guest speakers delivered insightful lectures to help us prepare for this new chapter in our lives. One speaker who truly left a lasting impression on me was Mr. Manpreet Singh, a fitness coach. His powerful message about staying away from drugs during this critical and vulnerable phase of life is something I will always remember.
+
+### Another speaker I enjoyed was Mr. Lakhvir Singh, the Head of the Centre for Multifaceted Learning. He kept the vibe light and fun throughout his session, which made it really enjoyable. He encouraged us to join the Centre, saying it would help in the holistic development of students. I’m genuinely interested in joining it and exploring what it has to offer.
+
+### I also feel grateful to the teachers and seniors who are constantly guiding and supporting me as I settle into college life. 
 
 
 
